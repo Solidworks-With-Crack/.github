@@ -10,7 +10,7 @@ solidworks crack
 
 solidworks crack download
 
-solidworks cracked version 2023
+solidworks cracked version 2025
 
 solidworks download with crack 64 bit
 
